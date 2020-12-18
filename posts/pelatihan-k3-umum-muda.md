@@ -85,5 +85,7 @@ Metode Pelatihan tentu menggunakan metode yang harus  interaktif yaitu melalui p
 ## Kesimpulan :
 mengenai pelatihan k3 umum dan juga materi pelatihan k3 umum sangat di anjurkan untuk para pemuda khusus nya para freshgraduate untuk mencoba tentang pelatihan ahli k3 umum ini karena sangat penting untuk kedepan nya lho maka tidak ada salah nya anda ikut tentang materi pelatihan k3 umum.
 
+<iframe width="560" height="315" src="https://www.youtube.com/embed/a2LSvJloDU0" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 Bagi  kalian bisa lho ikut dalam belajar  pelatihan ahli k3 umum di batam dan juga kami merekomendasikan  tempat training k3 umum yang tentu sudah di percaya dan di andalkan , di PT Trainers Management 
 [klik disini](https://www.trainingk3umumbatam.com/ )
